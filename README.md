@@ -33,7 +33,7 @@ Some pests like bed bugs can be difficult to control. The chance of reinfestatio
 -	Bag up all clothing items before the pest control service is started
 -	Set up a temporary containment for all travel luggage coming into your home
 
-![Image](https://github.com/IndependentPest/Preparing-Your-Home-for-Pest-Control-Services/blob/gh-pages/independentlogo.jpg)
+![Independent Pest Solutions](https://github.com/IndependentPest/Preparing-Your-Home-for-Pest-Control-Services/blob/gh-pages/independentlogo.jpg)
 
 **Address:** [14611 Meridian E Ste B, Puyallup, WA 98374](https://www.google.com/maps?cid=13042981148039531665)
 
