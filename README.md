@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Preparing Your Home for Pest Control Services - Tips from Independent Pest Solutions
 
 You can use the [editor on GitHub](https://github.com/IndependentPest/blog/edit/gh-pages/README.md) to maintain and preview the content for your website in Markdown files.
 
