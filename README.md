@@ -33,5 +33,5 @@ Some pests like bed bugs can be difficult to control. The chance of reinfestatio
 -	Bag up all clothing items before the pest control service is started
 -	Set up a temporary containment for all travel luggage coming into your home
 
-![Image](src)
+![Image](https://github.com/IndependentPest/Preparing-Your-Home-for-Pest-Control-Services/blob/gh-pages/independentlogo.jpg)
 ### Independent Pest Solutions
