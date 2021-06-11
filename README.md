@@ -36,7 +36,10 @@ Some pests like bed bugs can be difficult to control. The chance of reinfestatio
 ![Image](https://github.com/IndependentPest/Preparing-Your-Home-for-Pest-Control-Services/blob/gh-pages/independentlogo.jpg)
 
 **Address:** [14611 Meridian E Ste B, Puyallup, WA 98374](https://www.google.com/maps?cid=13042981148039531665)
+
 **Phone:** [(253) 284-4581](tel:2532844581)
+
 **Visit our profiles:**
+
 -	[Independent Pest Solutions Facebook Page](https://www.facebook.com/IndependentPestSolutions/)
 -	[Independent Pest Solutions Instagram](https://www.instagram.com/independentpest/)
