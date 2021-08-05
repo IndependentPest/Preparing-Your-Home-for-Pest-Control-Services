@@ -17,7 +17,7 @@ The interior of your home is one of the prized areas where pests wish to live. Y
 -	Empty your trash
 
 ## Exterior Preparation
-Certain pests find your exterior area to be favorable for them. Whether you are dealing with a raccoon problem, bird problem, termite problem, or others, you need to prepare the exterior area ahead of our pest control service. To get this done, focus on the following:
+Certain pests find your exterior area to be favorable for them. Whether you are dealing with an ants, spiders, termite problem, or others, you need to prepare the exterior area ahead of our pest control service. To get this done, focus on the following:
 
 - Mow your lawns and trim the vegetation. If you have trees installed, now may be the right time to trim and prune
 -	Close and seal all entry points to prevent re-infestation
